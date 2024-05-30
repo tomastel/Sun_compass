@@ -6,4 +6,4 @@
 
 
 
-Read my published thesis on NTNU Open
+Read my published thesis on NTNU Open.
